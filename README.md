@@ -64,5 +64,5 @@ License
 
 ---
 
-![长沙市麓山滨江实验学校](download.jpg)
+![长沙市麓山滨江实验学校](download-modified.jpg)
 
